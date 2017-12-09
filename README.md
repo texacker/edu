@@ -1,1 +1,1 @@
-# My Thesis and PhD Dissertation
+# My thesis and phd dissertation.
